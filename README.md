@@ -47,7 +47,7 @@ Traditional attendance methods are often inefficient, error-prone, and vulnerabl
 **Tanyaradzwa Mellania Hamandishe**  
 University of Economy, Bydgoszcz  
 Specialty: Computer Engineering and Mechatronics  
-📍 Poland, Poland
+📍 Bydgoszcz, Poland
 
 ---
 
